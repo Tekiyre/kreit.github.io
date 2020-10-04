@@ -1,3 +1,2 @@
 # eryou25
-+ ----------------
-+ hello internet.
++ hello internet. youtube.com/TheTimosp
